@@ -7,9 +7,9 @@
  
  Proxy/ProxyLess 
 
-contact telegram https://t.me/danirusa
+contact telegram https://t.me/daniruee
 
-telegram chanel https://t.me/toolsgit
+telegram chanel https://t.me/toolsgi
 
 ⏩️#Instagram-accounts-creator-
 我修复了 InstaGram 帐户创建器：
